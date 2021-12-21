@@ -8,6 +8,8 @@ I usually develop iOS
 
 I code every day
 
+My goal is to fill 100 icons at the bottom.
+
 I'm Commitment until the day you become the master of ios development!!!🔥🔥🔥🔥🔥
 
 
