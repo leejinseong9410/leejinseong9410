@@ -57,3 +57,6 @@ I'm Commitment until the day you become the master of ios development!!!🔥🔥
 
 ![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=leejinseong9410&show_icons=true&theme=radical)
 
+
+
+notion: https://luminous-epoxy-546.notion.site/Jinseong-Lee-a483f2960db24a57a162548cc447a092
